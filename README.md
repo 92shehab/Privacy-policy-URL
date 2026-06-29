@@ -59,7 +59,6 @@ Correct or update information
 Request deletion of your data
 Unsubscribe from marketing messages
 
-Contact us at: 92shehab@gmail.com
 
 8. Third-Party Services
 
@@ -80,5 +79,4 @@ We may update this Privacy Policy from time to time. Updates will be posted on t
 12. Contact Us
 
 Sultana Shop
-Email: sultanashop@gmail.com
 Website: https://sultanashop.com
